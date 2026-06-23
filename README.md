@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ragnarloth190(pranjal niraula)   
+- 👋 Hi, I’m pranjal niraula)   
 - 👀 I’m interested in business, content creation, editing and coding.
 - 🌱 I’m currently learning editing.
 - 💞️ I’m looking to build a mastermind connection.
